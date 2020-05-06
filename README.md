@@ -1,2 +1,2 @@
 # hello-world
-Me trying not to suck at this
+Me trying to leanr new things because it's absolutely normal that I don't know something I haven't used before.
